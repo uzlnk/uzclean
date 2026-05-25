@@ -1,1 +1,1 @@
-# uzclean smart city
+# uzclean smart city Namangan
